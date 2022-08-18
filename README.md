@@ -2,4 +2,4 @@
 - 👀 I’m interested in cybersecurity as a whole and video games
 - 🌱 I’m currently learning about newtwork security
 - 💞️ I’m looking to collaborate on ...
-- 📫 How to reach me , Jaystone0211@gmail.com
+- 📫 How to reach me , shwerminfiji@gmail.com
