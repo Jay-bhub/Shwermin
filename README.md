@@ -1,5 +1,5 @@
-- 👋 Hi, I’m @Shwermin
+- 👋 Hi, I’m @Jay
 - 👀 I’m interested in cybersecurity as a whole and video games
 - 🌱 I’m currently learning about network security
 - 💞️ I’m looking to collaborate on ...
-- 📫 How to reach me , Shwermin@gmail.com
+- 📫 How to reach me , shwerminfiji@gmail.com
